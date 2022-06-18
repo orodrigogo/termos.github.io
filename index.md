@@ -1,4 +1,4 @@
-## Política de Privacidade App Colorir
+## Política de Privacidade
 
 ### **SEÇÃO 1 - O QUE FAREMOS COM ESTA INFORMAÇÃO?**
 
