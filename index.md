@@ -18,7 +18,7 @@ Se pedimos por suas informações pessoais por uma razão secundária, como mark
 
 E caso você queira retirar seu consentimento, como proceder?
 
-Se após você nos fornecer seus dados, você mudar de ideia, você pode retirar o seu consentimento para que possamos entrar em contato, para a coleção de dados contínua, uso ou divulgação de suas informações, a qualquer momento, entrando em contato conosco em **rodrigo.rgtic@gmail.com** ou nos enviando uma correspondência em: **App Colorir** **Bebedouro, São Paulo**
+Se após você nos fornecer seus dados, você mudar de ideia, você pode retirar o seu consentimento para que possamos entrar em contato, para a coleção de dados contínua, uso ou divulgação de suas informações, a qualquer momento, entrando em contato conosco em **rodrigo.rgtic@gmail.com**.
 
 ### **SEÇÃO 3 - DIVULGAÇÃO**
 
